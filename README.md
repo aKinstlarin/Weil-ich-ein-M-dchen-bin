@@ -1,4 +1,4 @@
-![Weil ich ein Mädchen bin](IMG_20250702_140345.jpg)
+![Weil ich ein Mädchen bin](IMG_20261015_165103.jpg)
 # Weil ich ein Mädchen bin
 
 **Titel:** Weil ich ein Mädchen bin  
